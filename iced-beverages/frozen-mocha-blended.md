@@ -11,7 +11,7 @@
 - Whipped cream
 - Chocolate shavings
 
-## How to Make Mocha Frozen Blended Coffee​
+## How to Make Mocha Frozen Blended Coffee tea
 
 ### Step 1
 
